@@ -1,0 +1,2 @@
+# AI-CORE-BY-IKIY-GASIMA-
+ai GASIMAa 
